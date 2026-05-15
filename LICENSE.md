@@ -1,4 +1,4 @@
-# 
+# elite pump.fun sniper bot | degen-coin-scanning + dex-sniping is the best pump.fun sniper bot, featuring degen-coin-scanning and dex-sniping. Fast, smart, and optimized for MEV
 
 
 
